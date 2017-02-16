@@ -1,2 +1,4 @@
 # on-my-own
-This will be me not following the instructions
+ Ok I'm not following anything now.
+ 
+ Lets see if you can follow without instructions.
